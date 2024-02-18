@@ -1,0 +1,1 @@
+# sprava-skladovych-zasob
